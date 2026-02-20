@@ -1,61 +1,61 @@
-#  ROTEIRO — O AMOR QUE SE ENTREGA 
+# ROTEIRO — O AMOR DE UM PAI QUE PROTEGE
 
-### ``` (CENA DO HOMEM DE FERRO SE SACRIFICANDO) ```
 
-Todo mundo lembra desse momento…
+Existe uma cena que vai muito além de um filme de heróis…
 
-Quando Tony Stark percebe que não existe outro caminho.
-Que alguém precisa se entregar…
-Para que todos os outros possam viver.
+### ``` (CENA DO YONDU SE SACRIFICANDO PELO PETER) ```
 
-Ele poderia fugir.
-Poderia tentar outra solução.
-Mas ele escolhe se sacrificar.
+Quando Yondu salva Peter no espaço…
+Ele sabe que só um dos dois vai sobreviver.
 
-### (pausa)
-
-E naquele instante…
-O universo é salvo…
-Porque alguém decidiu dar a própria vida por amor.
-
-(pausa curta)
-
-Mas existe algo ainda mais profundo aqui.
-
-Essa cena emociona tanto…
-Porque ela reflete uma verdade que já conhecemos no coração.
-
-O verdadeiro amor se sacrifica.
+E sem hesitar…
+Ele escolhe que o filho viva.
 
 ### (pausa)
 
-E foi exatamente isso que Deus fez por nós.
+Porque o verdadeiro amor de pai protege…
+Mesmo que custe tudo.
 
-Não em uma batalha fictícia…
-Mas na história real da humanidade.
+### (pausa curta)
 
-Jesus Cristo se entregou voluntariamente…
-Não porque foi obrigado…
-Mas porque nos amou primeiro.
+Essa cena toca tão fundo…
+Porque ela nos lembra de um amor real.
+Um amor que existiu de verdade na história da humanidade.
 
-Ele tomou sobre si a dor…
-O pecado…
-E a morte…
+O amor de São José por Jesus.
 
-Para que nós tivéssemos vida.
+### (pausa)
+
+José não era o pai biológico de Jesus…
+Mas foi o pai que cuidou.
+O pai que protegeu.
+O pai que esteve presente todos os dias.
+
+Foi ele que protegeu Maria.
+Foi ele que fugiu para salvar o menino da morte.
+Foi ele que trabalhou em silêncio para sustentar sua família.
 
 ### (pausa emocional)
 
-Tony Stark salvou o universo do filme…
-Mas Jesus veio salvar o nosso coração.
+José não fez milagres.
+Não deixou grandes discursos.
+Não apareceu buscando reconhecimento.
 
-Um sacrifício inspirador…
-Outro eterno.
+Mas viveu algo heroico todos os dias:
+Amar, proteger e se entregar completamente por aquele que Deus confiou a ele.
+
+### (pausa)
+
+Assim como Yondu deu sua vida para salvar o filho…
+São José entregou a própria vida inteira — em silêncio — para proteger Jesus.
 
 ### (pausa final)
 
-Porque o maior amor que existe…
-Não é o que vence inimigos…
+Porque o verdadeiro amor de pai…
+Não é só gerar vida.
 
-É o que se entrega completamente…
-Para que outros vivam.
+É cuidar.
+É guardar.
+É proteger.
+
+É viver totalmente para aquele que Deus colocou em suas mãos.
