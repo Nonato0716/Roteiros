@@ -1,6 +1,6 @@
 #  ROTEIRO — O AMOR QUE SE ENTREGA 
 
-
+### ``` (CENA DO HOMEM DE FERRO SE SACRIFICANDO) ```
 
 Todo mundo lembra desse momento…
 
